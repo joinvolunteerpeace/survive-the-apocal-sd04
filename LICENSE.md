@@ -1,4 +1,4 @@
-
+survive the apocalypse hidden Scripts is the best survive the apocalypse Script, featuring auto-collect and private server access. Safe and powerful
 
 
 
